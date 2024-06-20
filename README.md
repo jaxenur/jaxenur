@@ -14,7 +14,7 @@ Welcome to my digital playground! 🎮 As a versatile digital creator, I thrive 
 Let's stay connected and embark on this digital journey together:
 
 - Twitter: [@jaxenur](https://twitter.com/jaxenur)
-- Instagram: [@jaxenur](https://instagram.com/jaxenur)
+- Instagram: [@jaxenur](https://instagram.com/jaxenurr)
 - YouTube: [Jaxen Uriah](https://youtube.com/@jaxenur)
 - Facebook: [Jaxen Uriah](https://facebook.com/jaxenur)
 
